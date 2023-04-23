@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-- 📭 How to reach me: otar.alasania@gmail.com_
+- 📭 How to reach me: otar.alasania@gmail.com
